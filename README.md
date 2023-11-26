@@ -1,0 +1,1 @@
+# atividade10_tec_disruptivas
